@@ -1,4 +1,4 @@
-## Bem vendo ao meu perfil 💙
+## Bem vendo ao meu perfil 🧡
 
 meu nome é Ezequiel Soares
 
